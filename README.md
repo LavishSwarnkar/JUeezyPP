@@ -1,2 +1,2 @@
 # JUeezyPP
-Privacy Policy for JU eezy
+Privacy Policy for JU eezy.
